@@ -1,2 +1,2 @@
 # hello-word
-gaming
+Venezuelan 🇻🇪 student of computer engineering👨🏾‍💻 lover of videogames🎮 and new technologies📡
